@@ -1,1 +1,1 @@
-# Du-lich-Da-Lat cung Tuiiii
+# Du-lich-Da-Lat cung Tuiiii sẽ bao gồm chuẩn bị hành lí trong vòng 5 ngày cho tất cả thành viên và set up sẵn các trang thiết bị cần thiết cho chuyển đi , đặt khách sạn và homestay cho chuyến đi (yêu cầu khách sạn phải đạt chuẩn từ 3 sao trở lên) . Các thông tin về chuyến đi như địa điểm ăn và chô đi chơi sẽ được sắp xếp hợp lí để đoàn có thể nghỉ ngơi và có nhiều thời gian rảnh cho mua sẵm , ăn vặt và buổi tối 
